@@ -1,2 +1,1 @@
-starting...
-
+I AM GAY , AND LOVE THE LGBTIA+ COMMUNITY
