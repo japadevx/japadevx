@@ -1,3 +1,4 @@
 I AM GAY , AND LOVE THE LGBTIA+ COMMUNITY
 
-<a href="https://static-00.iconduck.com/assets.00/lgbt-icon-1024x731-yvdzdh0e.png"></a>
+
+<p align="left"> <img src="https://www.vecteezy.com/vector-art/7973118-lgbt-pride-flag-rainbow-flag-background-multicolored-peace-flag-movement-original-colors-symbol-horizontal-stripes-icon-graphic-design-sign-mockup" alt="joseook" /> </p>
